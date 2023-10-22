@@ -2,8 +2,6 @@
 
 ## Aqui estou demontrando como fazer alterações
 
-## Estou fazendo mais essa alteração para brincar um pouco
-
 ## Uma atualização nova 
  
 ## Início do vídeo
